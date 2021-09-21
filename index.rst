@@ -1,6 +1,6 @@
-GARENA FREE FIRE DIAMOND HACK APP - HACK GARENA FREE FIRE{AX-9}
+FREE FIRE DIAMOND HACK 99999 APP - HACK FREE FIRE{AX-9} FREE FIRE HACK 2021
 ~~~~~~~~~~~~
-UPDATED: 21-09-2021|{ONLINEUSERS:6684}
+UPDATED: 21-09-2021|{ONLINEUSERS:2435}
 
 
  Click on the "Access Generator" button, and open the generator. Select the amount of "Free Fire Diamonds" you want to generate. A new pop-up will ask for your free fire username, enter your username and click the button "Generate". Wait for the generator to finish the generating process.
